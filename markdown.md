@@ -23,7 +23,7 @@ A classic British cake from the Bake Off judge, Paul Hollywood's lemon drizzle i
 
 + For the feather icing
   + 250g icing sugar
-  + 3 tbsp water
+  + 10 tbsp water
   + splash of yellow food colouring
 
   ## Method 
@@ -32,7 +32,7 @@ A classic British cake from the Bake Off judge, Paul Hollywood's lemon drizzle i
 
 2. Using an electric whisk, beat the butter and sugar together until pale, light and fluffy. .Add the eggs and mix again. Add the flour, baking powder, lemon zest, lemon curd and milk, and mix with a wooden spoon until all the ingredients are thoroughly combined. Pour the mixture into the prepared tin and bake for 25-30 mins or until a skewer comes out clean.
 
-3. Mix the sugar and lemon juice together and pour over the hot cake. Leave to cool in the tin. You can eat the cake as it is, or for a fancy finish, try making this feather icing.
+3. Mix the sugar  by aware and lemon juice together and pour over the hot cake. Leave to cool in the tin. You can eat the cake as it is, or for a fancy finish, try making this feather icing.
 
 4. Mix the icing sugar with just enough water to give a runny, but not watery, icing. Put a small amount of icing in a separate bowl. Add a few drops of the food colouring to the icing until pale yellow. Spoon into a disposable icing bag.
 
